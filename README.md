@@ -7,7 +7,7 @@
 - **Instagram:** [VILN.MUSIC](https://www.instagram.com/viln.music/)
 
 ### Store
-- **SHOP AWOK:** AWOKMUSIC.COM
+- **Shop AWOK:** [AWOKMUSIC.COM] (https://www.awokmusic.com)
 
 <br />
 
