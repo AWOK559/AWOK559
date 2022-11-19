@@ -1,4 +1,15 @@
-### Hi there 👋
+### AWOK
+
+
+### Links
+- **Discord:** [AWOK](https://discordapp.com/users/AWOK#8970)
+- **YouTube:** [AWOK](https://youtube.com/@awok)
+- **Instagram:** [VILN.MUSIC]](https://www.instagram.com/viln.music/)
+
+### Store
+- **SHOP AWOK:** https://awokmusic.com
+
+<br />
 
 <!--
 **AWOK559/AWOK559** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
