@@ -5,6 +5,7 @@
 - **Discord:** [AWOK](https://discordapp.com/users/AWOK#8970)
 - **YouTube:** [AWOK](https://youtube.com/@awok)
 - **Instagram:** [VILN.MUSIC](https://www.instagram.com/viln.music/)
+- **Spotify:** [AWOK](https://open.spotify.com/artist/6jsEx3IjzV5eTJijehWESL?si=exsYb9F8QweHKr1EWxcu9A)
 
 ### Store
 - **Shop AWOK:** [AWOKMUSIC.COM](https://www.awokmusic.com)
