@@ -8,7 +8,7 @@
 - **Spotify:** [AWOK](https://open.spotify.com/artist/6jsEx3IjzV5eTJijehWESL?si=exsYb9F8QweHKr1EWxcu9A)
 
 ### Store
-- **Shop AWOK:** [AWOKMUSIC.COM](awokmusic.com)
+- **Shop AWOK:** [AWOKMUSIC.COM](www.awokmusic.com)
 
 <br />
 
