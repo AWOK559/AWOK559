@@ -6,6 +6,7 @@
 - **YouTube:** [AWOK](https://youtube.com/@awok)
 - **Instagram:** [VILN.MUSIC](https://www.instagram.com/viln.music/)
 - **Spotify:** [AWOK](https://open.spotify.com/artist/6jsEx3IjzV5eTJijehWESL?si=exsYb9F8QweHKr1EWxcu9A)
+- **3D Designs** [3D Stuff](https://www.thingiverse.com/awok/designs)
 
 ### Store
 - **Shop AWOK:** [AWOKMUSIC.COM](http:/www.awokmusic.com)
