@@ -1,6 +1,6 @@
 ### AWOK
 
-### Join me on [Discord](https://discord.gg/fxsRV2TK) to get updates and restock info.
+### Join me on [Discord](https://discord.gg/TSfUuvdMSx) to get updates and restock info.
 
 
 ### Links
