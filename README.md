@@ -1,5 +1,7 @@
 ### AWOK
 
+### Join me on [Discord](https://discord.gg/fxsRV2TK) to get updates and restock info.
+
 
 ### Links
 - **Discord:** [AWOK](https://discordapp.com/users/AWOK#8970)
