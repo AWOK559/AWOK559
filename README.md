@@ -1,10 +1,10 @@
 ### AWOK
 
-### Join me on [Discord](https://discord.gg/TSfUuvdMSx) to get updates and restock info.
+### Join me on [Discord](https://discord.gg/7ep43nspwt) to get updates and restock info.
 
 
 ### Links
-- **Discord:** [AWOK](https://discordapp.com/users/AWOK#8970)
+- **Discord:** [AWOK](https://discordapp.com/users/AWOK#0559)
 - **YouTube:** [AWOK](https://youtube.com/@awok)
 - **Instagram:** [VILN.MUSIC](https://www.instagram.com/viln.music/)
 - **Spotify:** [AWOK](https://open.spotify.com/artist/6jsEx3IjzV5eTJijehWESL?si=exsYb9F8QweHKr1EWxcu9A)
