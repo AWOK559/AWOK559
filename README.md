@@ -11,7 +11,7 @@
 - **3D Designs** [3D Stuff](https://www.thingiverse.com/awok/designs)
 
 ### Store
-- **Shop AWOK:** [AWOKMUSIC.COM](http:/www.awokmusic.com)
+- **Shop AWOK:** [AWOKDYNAMICS.COM](http:/www.awokdynamics.com)
 
 <br />
 
