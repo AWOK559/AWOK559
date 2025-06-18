@@ -5,12 +5,12 @@
 
 ### Links
 - **YouTube:** [AWOK](https://youtube.com/@awok)
-- **Instagram:** [VILN.MUSIC](https://www.instagram.com/viln.music/)
+- **Instagram:** [AWOK.Dynamics](https://www.instagram.com/awok.dynamics/)
 - **Spotify:** [AWOK](https://open.spotify.com/artist/6jsEx3IjzV5eTJijehWESL?si=exsYb9F8QweHKr1EWxcu9A)
 - **3D Designs** [3D Stuff](https://www.thingiverse.com/awok/designs)
 
 ### Store
-- **Shop AWOK:** [AWOKDYNAMICS.COM](http://www.awokdynamics.com)
+- **Shop AWOK:** [AWOKDYNAMICS.COM](https://www.awokdynamics.com)
 
 ### Support / Tips
 - **Cash App** : [$AWOK559](https://cash.app/$AWOK559)
