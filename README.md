@@ -15,10 +15,6 @@
 ### Support / Tips
 - **Cash App** : [$AWOK559](https://cash.app/$AWOK559)
 - **Venmo** : [@AWOK559](https://venmo.com/u/AWOK559)
-- **ETH(ERC20)** : `0xece4880bc58819af418e29444754d9c0a7485f90`
-- **BTC** : `14NxU5urpqCgbhPc9esmvFjwfnm6q279Mq`
-- **USDT(ERC20)** : `0xece4880bc58819af418e29444754d9c0a7485f90`
-- **USDT(TRC20)** : `TJaPhSpVaJA5draSGpJk98okT1YsSCFvNS`
 
 <br />
 
@@ -35,4 +31,10 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+
+- **ETH(ERC20)** : `0xece4880bc58819af418e29444754d9c0a7485f90`
+- **BTC** : `14NxU5urpqCgbhPc9esmvFjwfnm6q279Mq`
+- **USDT(ERC20)** : `0xece4880bc58819af418e29444754d9c0a7485f90`
+- **USDT(TRC20)** : `TJaPhSpVaJA5draSGpJk98okT1YsSCFvNS`
+
 -->
